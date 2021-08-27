@@ -1,2 +1,2 @@
 # javascript-playground
-JavaScript랑 친해지기
+JavaScript랑 친해지기🤸‍♀️🤸‍♂️
